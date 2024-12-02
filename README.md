@@ -1,4 +1,5 @@
-https://user-images.githubusercontent.com/74038190/212749447-bfb7e725-6987-49d9-ae85-2015e3e7cc41.gif
+
+![212749447-bfb7e725-6987-49d9-ae85-2015e3e7cc41](https://github.com/user-attachments/assets/1b2c027e-32ca-4461-87aa-4a65f1d8a0e6)
 
 IT's JUST m3 | MYS3lF & I
 
